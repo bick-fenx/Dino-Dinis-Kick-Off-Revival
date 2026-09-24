@@ -214,4 +214,4 @@ Dino Dini's Kick Off Revival is available as a complete free version for Windows
 Don't miss out on the chance to relive a classic! Download Dino Dini's Kick Off Revival now and enjoy the complete football experience for free!
 
 ---
-**Last updated:** 2026-09-24 15:46:15 UTC
+**Last updated:** 2026-09-24 19:44:52 UTC
